@@ -8,3 +8,4 @@ https://continuingstudies.stanford.edu/courses/creative-writing/how-to-self-publ
 https://continuingstudies.stanford.edu/courses/creative-writing/how-to-write-a-cookbook-and-strategies-for-getting-it-published/20184_EGL-44
 
 https://continuingstudies.stanford.edu/courses/professional-and-personal-development/early-stage-investing-for-investors/20184_BUS-23
+
