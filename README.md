@@ -19,6 +19,8 @@ https://www.draperuniversity.com/
 https://twitter.com/wasabiacademy
 
 ## Bootcamps
+https://www.atrium.co/blog/announcing-atrium-academy/
+
 https://consensys.net/academy/
 
 https://hackernoon.com/how-to-become-a-blockchain-developer-with-jimmy-song-a1333072a2e3
