@@ -33,6 +33,8 @@ Holberton
 
 Free Code Camp, NY
 
+https://developer.nvidia.com/
+
 ## Research Fellowships
 ...
 
