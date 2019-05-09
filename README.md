@@ -50,3 +50,17 @@ Where are international schools?
 Where are technical and seminary schools?
 
 Who are good mentors?  Any one-on-one teachers?  Private education?
+
+# Stories
+
+"What Made the Three Wise Men Wise?
+
+In Sunday School, I learned an important life’s lesson. It was a lesson from of the three Wise Men.
+
+My Sunday school teacher was a great teacher. She was young, pretty, and loved teaching kids. During one class, she asked us: “What made the three wise men wise?”
+
+Naturally, I said, “They had money. They came bearing expensive gifts. They were rich and wise men.”
+
+Obviously, that was not the answer she was looking for. After a few other students attempted their answers, she smiled and said: “What made them wise was their life-long search for great teachers.”
+
+Pausing for a moment to let that thought sink in, into the minds of kids below the age of 12, she continued by saying: “They were wise men, rich men, because they never stopped learning. They kept seeking new knowledge, knowledge from great teachers.”"
