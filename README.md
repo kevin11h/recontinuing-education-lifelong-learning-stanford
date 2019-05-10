@@ -38,6 +38,9 @@ https://developer.nvidia.com/
 ## Research Fellowships
 ...
 
+## Scholarships
+?
+
 # Questions
 What are other areas of learning?  And doing?
 
