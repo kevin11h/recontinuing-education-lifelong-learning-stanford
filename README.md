@@ -67,3 +67,15 @@ Naturally, I said, “They had money. They came bearing expensive gifts. They we
 Obviously, that was not the answer she was looking for. After a few other students attempted their answers, she smiled and said: “What made them wise was their life-long search for great teachers.”
 
 Pausing for a moment to let that thought sink in, into the minds of kids below the age of 12, she continued by saying: “They were wise men, rich men, because they never stopped learning. They kept seeking new knowledge, knowledge from great teachers.”"
+
+https://continuingstudies.stanford.edu/courses/professional-and-personal-development/principles-of-invention-and-innovation-a-toolkit-for-generating-breakthrough-ideas/20184_BUS-74
+
+https://continuingstudies.stanford.edu/courses/creative-writing/how-to-write-a-cookbook-and-strategies-for-getting-it-published/20184_EGL-44
+
+https://continuingstudies.stanford.edu/courses/professional-and-personal-development/critical-communication-skills-in-negotiation/20184_WSP-44
+
+https://continuingstudies.stanford.edu/courses/professional-and-personal-development/early-stage-investing-for-investors/20184_BUS-23
+
+https://continuingstudies.stanford.edu/courses/professional-and-personal-development/interactive-data-visualization-in-d3-icme-workshop/20184_WSP-369
+
+https://continuingstudies.stanford.edu/courses/professional-and-personal-development/funding-a-new-enterprise-learn-from-experienced-silicon-valley-practitioners/20184_BUS-28
