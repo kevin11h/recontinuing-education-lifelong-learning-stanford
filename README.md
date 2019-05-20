@@ -78,4 +78,4 @@ https://continuingstudies.stanford.edu/courses/professional-and-personal-develop
 
 https://continuingstudies.stanford.edu/courses/professional-and-personal-development/interactive-data-visualization-in-d3-icme-workshop/20184_WSP-369
 
-https://continuingstudies.stanford.edu/courses/professional-and-personal-development/funding-a-new-enterprise-learn-from-experienced-silicon-valley-practitioners/20184_BUS-28
+https://continuingstudies.stanford.edu/courses/professional-and-personal-development/funding-a-new-enterprise-learn-from-experienced-silicon-valley-practitioners/20184_BUS-28  Jul 16 to Aug 8
