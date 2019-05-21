@@ -25,6 +25,10 @@ https://consensys.net/academy/
 
 https://hackernoon.com/how-to-become-a-blockchain-developer-with-jimmy-song-a1333072a2e3
 
+June 27 28
+
+https://programmingbitcoin.com/programming-blockchain/
+
 https://www.coursereport.com/blog/university-coding-bootcamps  \#yale \#flatiron 
 
 42 school
