@@ -12,6 +12,8 @@ https://continuingstudies.stanford.edu/courses/creative-writing/how-to-write-a-c
 
 https://continuingstudies.stanford.edu/courses/professional-and-personal-development/early-stage-investing-for-investors/20184_BUS-23
 
+Jul 16—Aug 8
+
 ## Venture Capital Academies
 
 https://www.draperuniversity.com/
