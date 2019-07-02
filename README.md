@@ -12,6 +12,9 @@ https://continuingstudies.stanford.edu/courses/creative-writing/how-to-write-a-c
 
 https://continuingstudies.stanford.edu/courses/professional-and-personal-development/early-stage-investing-for-investors/20184_BUS-23
 
+Dates	Jul 16 to Aug 8
+Please Note	Class sessions: 2 Tuesdays, July 16, and August 6, 6:30 - 9:00 pm; 4 Thursdays, July 18, July 25, August 1, and August 8, 6:30 – 9:00 pm; Off-campus field trips: 2 Tuesdays, July 23 and July 30, 6:30 – 9:00 pm
+
 Jul 16—Aug 8
 
 ## Venture Capital Academies
