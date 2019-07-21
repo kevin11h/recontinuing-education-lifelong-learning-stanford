@@ -4,6 +4,11 @@
 CCSF City College San Francisco
 
 ## Classes
+
+Stanford Continuing Studies | Stanford University
+https://continuingstudies.stanford.edu/
+Stanford Continuing Studies welcomes all adult members of the ... in between. Take courses for pleasure, personal **[educational]** **enrichment**, or professional development.
+
 https://continuingstudies.stanford.edu/courses/liberal-arts-and-sciences/acoustic-guitar-for-beginners-the-songs-of-the-rolling-stones-van-morrison-and-beyond/20183_MUS-60
 
 https://continuingstudies.stanford.edu/courses/creative-writing/how-to-self-publish-a-book-a-roadmap-for-entrepreneurial-writers/20184_WSP-102
